@@ -1,1 +1,1 @@
-bye bye microsoft. please visit https://git.osuv.de/m/markuman/arch-on-air
+bye bye microsoft. please visit https://git.osuv.de/m/arch-on-air
